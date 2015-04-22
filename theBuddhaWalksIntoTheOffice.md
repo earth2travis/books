@@ -647,18 +647,3 @@ Combining our experience of emptiness with our experience of compassion allows u
 The top regret was, “I wish I’d had the courage to live a life true to myself, not the life others expected of me.”
 
 By living in accord with the practices of mindfulness and compassion, you have a much better shot at creating change that is meaningful, without forcing or changing major aspects of who you are.
-
-## Part Three. Mahayana: Six Tools for Compassionate Leadership
-### 13. Benevolence, or Bashing Aggression with the Velvet Hammer
-### 14. True, or How to Be Steady as a Mountain
-### 15. Genuine, or Pointing to the Stars
-### 16. Fearlessness, or Being Decisive in an Indecisive World
-### 17. Artfulness, or Arranging Your Kingdom
-### 18. Rejoicing, or It's Okay to Party
-
-## Part Four. Vajrayana: Be Awake for Each Moment
-### 19. Developing Confidence
-### 20. It's Hard Out Here for a Pimp: Right Livelihood Revisited
-### 21. Let Go of My Ego
-### 22. Strippers, Life Coaches, and Cultivating an Authentic Presence
-### 23. Five Slogans for Increasing Conviction in Your Natural State
