@@ -647,3 +647,249 @@ Combining our experience of emptiness with our experience of compassion allows u
 The top regret was, “I wish I’d had the courage to live a life true to myself, not the life others expected of me.”
 
 By living in accord with the practices of mindfulness and compassion, you have a much better shot at creating change that is meaningful, without forcing or changing major aspects of who you are.
+
+## Part Three. Mahayana: Six Tools for Compassionate Leadership
+
+### 13. Benevolence, or Bashing Aggression with the Velvet Hammer
+* we can’t do everything
+* we can’t do it all alone
+
+A fundamental principle of leadership is that we need to engage others, work with their skill sets, and encourage the people with whom we collaborate.
+
+Six Ways of Ruling
+
+These six methods of leadership come under the Mahayana purview of working in a way that benefits everyone we meet.
+
+The Six Ways of Ruling are based in the idea that we are all already the king.
+
+if you acknowledge your own basic goodness and worthiness, you are truly regal.
+
+you can consider your home environment, your work environment, or your social environment in the same regal manner as a king would survey his land from his throne.
+
+You can live in a way that has a profound effect on others, as your brilliance radiates out and is of benefit to the world as a whole.
+
+The Six Ways of Ruling are about being benevolent, true, genuine, fearless, artful, and rejoicing.
+
+They teach that each of us has the ability to lead others, once we develop a sense of confidence in our innate wisdom.
+
+Putting others’ happiness before your own is a surefire way to earn the trust of your coworkers and creates fluid communication among everyone.
+
+A leader who is grounded in this form of confidence is often well regarded because people know them to be worthy of respect
+
+when you engage your work with certainty in your own wisdom and a desire to be helpful, people are naturally drawn to you.
+
+#### A Path of Service
+Leadership is the Shambala tradition is not an opportunity for personal gain.
+
+You have to take care of yourself, or you can’t continue to be helpful to others.
+
+Good leaders are also humble.
+
+it is a wonderful opportunity to serve others.
+
+#### Joining Heaven and Earth
+you have to join the day-to-day details of earth with a larger vision for what could be, which is referred to heaven.
+
+a leader can simultaneously hold a long-term vision and act in a way that accomplishes what needs to happen right now.
+
+“What a leader does for followers is turn anxiety into confidence.”
+
+the best way to judge a leader is by analyzing the people whom he or she leads. doubt or confidence?
+
+#### The Benevolent Leader
+benevolence is actively engaging kindness so that the lives of the people you are leading are changed for the better.
+
+They are open to other people’s perspectives and recognize other points of view.
+
+You have to go beyond the dictionary meaning of *benevolent* and put yourself in other people’s shoes by practicing empathy.
+
+#### Gentleness and Humor
+gentleness and humor will end up being your best tools for combating everyday confusion and aggression in the workplace.
+
+The Velvet Hammer
+
+The hammer is a tool that accomplishes what needs to get done. The velvet makes it soft, gentle, and thus people are more likely to respect it.
+
+A leader who is benevolent knows that aggression helps no one.
+
+Often when you offer space to someone, their aggression naturally fizzles. You are not pouring fuel on the fire of their anger, and without it, the heat of aggression gradually fades out.
+
+“Are you still angry about me carrying the woman?” he asked. “I Left her on the shore hours ago, but because of your anger, you have been carrying her this entire time.”
+
+Instead of meeting someone on the battlefield of aggression, you can meet them in the spacious playground of share innate wisdom.
+
+You can be a benevolent leader and, when faced with aggression, bash through it with the gentleness of a velvet hammer.
+
+### 14. True, or How to Be Steady as a Mountain
+Benevolence is the foundation of the qualities of true. Through gentleness and the directness of speaking a true statement, you are giving weight to your words. You are giving them power by allowing the qualities of true to shine forth.
+
+Really being true, then, simply means being in tune with your core wisdom.
+
+When you have conviction in basic goodness, you develop a sense of weightiness
+
+You can be as steadfast as a mountain when you experience the strength of your basic goodness.
+
+if you want to lead others, you need to let go of the notion that you can do everything at once. You need to focus, bringing yourself fully to whatever task is at hand or meeting is taking place, rather than strategizing about all the other things you could be doing.
+
+#### An Unwavering Presence
+Olympic athletes have devoted years to becoming one-pointed at very specific tasks.
+
+true is always acting from that sense of self confidence.
+
+It is confidence that everyone possesses basic goodness and that therefore you will be able to resolve whatever issue arises.
+
+When you are true to yourself in this way, you spontaneously act with integrity.
+
+Often our best friends are the ones who are unconditionally there for us.
+
+#### Natural Diplomacy
+power is best used when everyone profits from it—when we share it and empower others. True power, in this sense, is that you can see what people need in any given moment, and because you are true they trust you are acting on their behalf.
+
+charismatic behavior can be broken down into three basic elements: presence, power, and warmth.
+
+When you are true, there is no *them* that we need to conquer or subjugate; there is only us.
+
+As you exhibit the steadfast presence, the stable power, and the genuine warmth of being true, people will grow and trust and respect you. You will be able to lead with skill, supported by your coworkers and colleagues.
+
+### 15. Genuine, or Pointing to the Stars
+Genuine in this sense is not just being clear and direct. It involves pointing out the exact nature of things. You are pointing to reality in an indisputable manner.
+
+Genuine is based in knowing what is in your mind and heart, which it true, and not being afraid of it. We can genuinely be who we are. We can genuinely lead others in a way that everyone appreciates. We can even genuinely make mistakes. All of this is okay when it is rooted in our innate goodness.
+
+Genuine is pointing out whatever truth exists behind mixed expectations or set opinions.
+
+It is highlighting your own wisdom and creating a map for others to discover their own.
+
+I mapped out the logic behind why I was doing what I was doing.
+
+#### Working With Intimidation
+If they are bullshitting their way through work, your genuine presence only illuminates that fact.
+
+if you are lost in your own sense of they way things should be, and not realizing they way they are, then you are merely displaying your ideas and opinions, which is not necessarily genuine either.
+
+By offering your genuineness, even in uncomfortable positions ore when you are calling people out, you are offering them the chance to follow your lead and act in the same manner.
+
+“We are what we repeatedly do.”
+
+“Excellence then, is not an act, but a habit.”
+
+you have to repeatedly come back to the idea that you want to be genuine with others.
+
+#### Giving Up Genuineness
+It is that we are able to see a clear course of action and point to it. Point out the logic of a situation is always about benefitting others.
+
+That is what is meant by giving up genuineness: since it does not belong to us, we are readily available to offer it to the world at large.
+
+**Mantra Exercise for Authenticity**
+*Mantra* is a Sanskrit word that can be translated a “to protect the mind.”
+
+take out a male and silently recite and contemplate the word *patience* 108 times.
+
+choose the phrase that makes the most sense to you as an antidote to whatever emotional disturbance you’re currently experiencing.
+
+Whenever you engage in this practice, take a moment at the end of your recitation to raise your gaze and rest with whatever feeling has arisen.
+
+To take the time to count recitations of *benevolence, gentleness, presence, or warmth* may bring you back to the present moment and your connection with your basic goodness. From that point, you are returning to your most authentic you, and you can continue to practice being genuine.
+
+### 16. Fearlessness, or Being Decisive in an Indecisive World
+The Six Ways of Ruling are divided into two broad categories: just and powerful. The first three principles—benevolent, true, and genuine—are about manifesting in a way that feels just when working with others. The next three qualities fall under the heading of powerful. All six embody the Mahayana aspiration of helping all beings we encounter.
+
+the way to wild power well is to wield it for the good of all.
+
+true power comes from working for the welfare of others. That is the type of power we can respect.
+
+We can express our power at any time.
+
+Fearlessness is about looking at our fear, learning it well, and seeing our way through it. We must become familiar with our fear if we want to experience fearlessness.
+
+Fearlessness is based in the idea that in order to truly deal with your phobias, you need to confront them with an open heart and mind.
+
+#### Fear on the Meditation Cushion
+Fear is powered by story lines, and fearlessness is powered by innate goodness. The former comes and goes; the other is part of us.
+
+When those fears come up, the instruction is to label them *thinking* and return our attention to our breathing.
+
+try to locate the fear within the body.
+
+Try to identify where the emotion resides.
+
+contemplations like this point out how ephemeral these emotional states actually are.
+
+#### Overcoming Hesitancy
+“Fear is a state of mind. Fearlessness is our nature.” It is much better to reset in our nature than to engage a state of mind that only causes us suffering.
+
+If you can move beyond uncertainty in your basic goodness, then you can move beyond hesitation in making whatever decisions need to be made.
+
+#### Not Knowing What Will Happen Next
+“A warrior accepts that we can never know what will happen to us next.”
+
+If you aim to be a compassionate leader, the best thing to do is acknowledge what you will never know how things will work out. Fearlessness is the face of uncertainty is a powerful weapon for good.
+
+Fear will always arise in new forms as we go about our lives. To embrace it when it arises not as obstacle but as journey is a brilliant learning experience. From this, we can help others do the same. Once we recognize that our natural state is basically fearless, we can inspire confidence in others.
+
+### 17. Artfulness, or Arranging Your Kingdom
+Ruling our work situation is art, not a science.
+
+pick colleagues whose strengths balance out your weak points.
+
+We all want to work with someone who is being authentic, who receives situations clearly, and who we trust will put us to work in the manner most befitting our skills. That is when artfulness matters the most.
+
+#### The Right People for the Right Positions
+Skill sets can be easily taught; things like presence and communication are harder to train someone in.
+
+This aspect of artfulness is sometimes referred to as arranging your kingdom. Imagine your life as a kingdom, with you as the monarch. Knowing you cannot do everything or be everywhere, you need to appoint certain people as ministers, others as generals, others as educators, and so on, so that everyone has their rightful place in the kingdom based on their unique abilities.
+
+You can build your whole life out in this manner, artfully discerning who should play what role in order for everything to work seamlessly.
+
+“In most cases being a good boss means hiring talented people and then getting out of their way.”
+
+The artful leader cares about the people they are leading and wants to know them intimately.
+
+#### Timing, Space, and Communication
+Timing is an important element of being artful. It you want your work to flow seamlessly, you need to know when to act and when to give space to a situation.
+
+An artful leader is one who gives others the space to discover their own wisdom.
+
+The more we empower our employees in a supportive manner, the more we are able to accomplish together.
+
+Another aspect of artfulness is knowing when not to act at all.
+
+The more space you give other people to discover their wisdom—even if that messes with your preconceived notions of what ought to be happening—the more they will come to trust and respect you.
+
+The artful leader’s consideration for others goes beyond just knowing details about their lives; it involves thinking through exactly what each person needs to know and how best to convert that information.
+
+Artful communication is a form of compassion. We feel good engaging in it, and it is a way to share our heart clearly with other people. In difficult times, it helps others feel respected.
+
+We can’t rule our work or our life situation single-handedly. We need to rely on people. A skillful leader sees the unique qualities in others and places them in positions that allow them to shine and feel empowered, while bettering the situation at hand. Through artfully handling our timing and communication, we learn to make our life function life a well-oiled machine. We become powerful, operating seamlessly in our work in a way that provides comfort to others and benefit to all.
+
+### 18. Rejoicing, or It’s Okay to Party
+We have a knack for dwelling on all the upsets that come our way, complaining about our inconveniences, instead of celebrating everything that we have going for us.
+
+it is foolish that we waste so much time complaining about what we do not have instead of rejoicing in our good fortune.
+
+rejoice the various positive elements of your life and recognize the small occasions for rejoicing that take place throughout your day.
+
+**Exercise for Rejoicing**
+just sit down on your bed and meditate on the question *What have I done today that I can be proud of?*
+
+After reviewing what you wrote, raise your gaze and relax with whatever emotion may be present. That is rejoicing.
+
+#### Your World is Magic
+With the view that everyone and everything we encounter is rooted in basic goodness, we can find magic in any situation.
+
+If we encounter obstacles in our home or work life, they should be celebrated; they remind us of everything we already have within and around us. We can be grateful for their existence and rejoice that we can practice meditative mind at all.
+
+Come to realize the ephemeral quality of emotions and let them roll down your back.
+
+This ability to rejoice in the midst of great pressure is one of the things that make the Sakyong an incredible leader.
+
+#### Celebration
+A good happy hour seems to be marked by appreciating one another freely, outside of the confines for the habitual work dynamic, A bad happy hour seems to be marked by a perpetuation of the worst aspects of office behavior, including gossip and slander. Particularly when alcohol is tossed into the mix, it is hard to get people to say in the zone of appreciation and not slip into complaining about the same old garbage.
+
+“Celebration is an attitude.”
+
+It is an attitude of appreciating our life as it is.
+
+Rejoicing is a direct outcome of combining the previous five methods of leadership.
+
+if you live a life of mindfulness and empathy, you may simply find yourself becoming a leader, as others come to trust you and are magnetized to you.
