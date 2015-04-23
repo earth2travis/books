@@ -893,3 +893,204 @@ It is an attitude of appreciating our life as it is.
 Rejoicing is a direct outcome of combining the previous five methods of leadership.
 
 if you live a life of mindfulness and empathy, you may simply find yourself becoming a leader, as others come to trust you and are magnetized to you.
+
+## Part Four. Vajrayana: Be Awake for Each Moment
+
+### 19. Developing Confidence
+The Buddhist path is realizing that you are infinitely capable and then developing faith in that notion.
+
+*Varayana* is a Sanskrit term. *Vajra* can be translated as “diamond” or “indestructible”; *yana*, as we know, means “vehicle.”
+
+Our wakefulness, this basically good state, can never be destroyed.
+
+we don’t have to be confused or uncertain; we can experience our goodness and act from that powerful place.
+
+it is a way of life. It is the path of developing certainty in our goodness.
+
+when we develop the right skillful means, we can live a life based entirely in the nature of awake.
+
+#### Upaya
+*upaya* is a Sanskrit term that can be translated as “expedient or skillful means.”
+
+When we employ ape, we are acting in accord with reality, as opposed to fighting it.
+
+In today’s world, engaging in the process of slowing down and discovering that you aren’t, in fact, basically struggling and pitiful but are instead good and worthy is countercultural.
+
+If we long to be our most authentic self, then we need to overcome this obstacle and develop true confidence in our own goodness and our unique abilities.
+
+**Exercise in Examining Labels**
+you are not your obstacles.
+
+sit with the question *What labels do I place on myself?*
+
+Whatever comes up, note in on your paper.
+
+These labels change constantly.
+
+A core belief in the Buddhist tradition is *anatman*, a Sanskrit term that translates as “not-self.” It is the idea that you are not the set, solid being that you think you are. You are a fluid, constantly evolving and changing person who can play a variety of roles and embody a variety of qualities over time. You are not a permanent expression of the labels you put on yourself but more of a fluid entity that shifts in accordance with what comes up in your life.
+
+#### Working Skillfully With Obstacles
+How we respond to obstacles is what actually defines us.
+
+when you face an obstacle, you should think of it in the same impermanent, fluid way.
+
+acknowledge the obstacles and upheavals that come your way, but you do not need to let them weigh you down.
+
+### 20. It’s Hard Out Here for a Pimp: Right Livelihood Revisited
+appearances are not the issue, attachment to them is
+
+coemergent wisdom
+
+this famous pimp achieved awakening by taking on humble work, committing fully to it, and making it a part of his spiritual practice.
+
+we can switch our view of work so that everything we encounter is considered a part of our path.
+
+#### Three Lessons From Tilopa’s Story
+The first is his commitment to practice.
+
+That leads us to the second moral: Tilopa went to work as a pimp for a specific reason at a specific time in a specific place.
+
+we can pinpoint the work that will help us develop in a spiritual capacity.
+
+Tilopa’s motivation was spiritual awakening. Though his work is illegal in today’s world, it led him and others to enlightenment.
+
+we need to consider our livelihood from the perspective of how it can help us to hammer away at our neurosis, instead of encouraging it.
+
+The third moral of the story of Tilopa…is that we may be surprised by the effect this level of commitment has on others.
+
+Because you are living a spiritual life while you’re on the clock, other people are picking up on your energy and may start acting in a similar manner, whether they are aware of it or not.
+
+#### The Six Words of Advice
+*Don’t recall, or Let go of what has passed.*
+
+Dwelling in what has already passed is like living in a cinema. You may get some sort of satisfaction from the experience, but eventually the lights come up and you return to a reality that differs from the one you had been enjoying.
+
+*Don’t imagine, or Let go of what may come.*
+
+Similarly, there is no need to project what may happen tomorrow or the next day.
+
+*Don’t think, or Let go of what is happening now.*
+
+Don’t fixate on what is going on right now, overanalyzing it to no end.
+
+*Don’t examine, or Don’t try to figure anything out.*
+
+Don’t feel like you need to intellectualize anything.
+
+*Don’t control, or Don’t try to make anything happen.*
+
+give up the idea that you have to control anything at all.
+
+*Rest, or Relax, right now, and rest.*
+
+In the present moment we should not think too much about what’s going on. We should not try to fix anything, or make anything happen, or figure out what anything means.
+
+We should just relax and rest with right now. We should just be available to the present moment.
+
+### 21. Let Go of My Ego
+In the Buddhist content, *giving up* means that you are surrendering everything that is holding you back from experiencing reality in a direct and pure manner. Surrendering is viewed as positive. We are surrendering everything that stops us from being available to the teachings of the Buddha. We are giving up anything that might block the radio signal of the dharma.
+
+giving up is about letting go of every set self-image we project onto ourselves and all preconceived notions of our work and our world, but emptying ourselves of our our personal garbage.
+
+we need to give up territory. The strongest and most efficient leaders I know are the ones who are artful enough to drop their own sense of what needs to happen and empower other people to make things run smoothly.
+
+In order to give up territory, you need to not take things so personally.
+
+We should be diligent in considering how our preconceived notions of self and others hold us back from experiencing the world as it is.
+
+#### The Guru
+Guru is a Sanskrit term which can be translated as “teacher” or “master.” A true guru is an individual who has fully let go of their ego, embraced a set of teachings, and embodies those teachings in a real and living manner.
+
+we should be wary of whom we choose as a teacher.
+
+Be sure that they are someone genuine who embodies wisdom and doesn’t just possess an intellectual understanding of the teachings.
+
+#### Our Life as Teacher
+look to your own life situations as opportunities for processing your neuroses.
+
+Instead of relying on others for your inner transformation, you can look at every situation in your life as a chance to explore where you are still hanging on to emotional attachment.
+
+#### Offering
+There are three aspects of offering in this way: body, speech, and mind.
+
+By diving head first into any project that arises, you are giving of yourself without hesitation.
+
+Giving up your speech means that you are using it to the best of your ability to be helpful to the situation.
+
+You can let go of me-based thinking completely.
+
+we are letting go, relaxing into the situation by surrendering completely to it. 
+
+#### Trust
+We have to trust our own basic goodness as well as that of other people.
+
+**An On-the-Spot Practice for Giving Up**
+
+you should never shoot down a situation but instead support it, offering yourself to it.
+
+surrender to the situation
+
+You leap in an say yes and add whatever value you can to the scenario.
+
+### 22. Strippers, Life Coaches, and Cultivating an Authentic Presence
+the aim of Shambhala Buddhist training is to “become a real person who can help others.”
+
+We are becoming more awake to our basic nature, our own goodness and worthiness, and thus are able to be helpful to the world at large.
+
+The idea of basic goodness is that more you is exactly what this world needs. When you are your most authentic self, you can serve the world in a powerful way. You can offer the most potent aspects of who you actually are. As we develop conviction in our basic goodness through our work and surrender our neurosis, we become not different but more authentic.
+
+When you exhibit this authentic presence, people are magnetized to you.
+
+Authentic Presence:
+* understand cause and effect (outer)
+* letting go (inner)
+
+accept and cherish every aspect of who we are.
+
+#### Windhorse
+at any time we can ride the wind, or energy, or our life, just as we would a horse.
+
+#### The Life Coach and The Stripper 
+whatever work you do…if you have the right motivation, conviction in bringing you practice to your work, and artfulness, you can be of benefit.
+
+We can learn from their example and in turn become more authentically who we are. We can become truly comfortable in our skin and wield the power or our presence in a way that brings delight and relaxation to others. We can contact our basic goodness and ride the energy of that experience. When we are able to authentically do all of that, we magnetize the resources we need and provide inspiration to others.
+
+### 23. Five Slogans for Increasing Conviction in Your Natural State
+drop the barrier between your work and meditation practice.
+
+The Vajrayana path shares in the Mahayana vision of working toward awakening in order to be of benefit to others.
+
+*Rest in the nature of alaya, the essence.*
+
+simply maintain a sense of bare awareness without thinking about anything or forcing the mind into a concentrated state.
+
+*In post meditation, be a child of illusion.*
+
+bring that mindfulness and compassion off the cushion and into your everyday life.
+
+we can perceive whatever we encounter as sacred and magical, simply be being present to its reality.
+
+*All dharma agrees at one point.*
+
+the unifying aspect of everything the Buddha ever taught is the imperative to overcome our own ignorance of self and of reality. 
+
+shed our habitual layers of ego and surrender to the way things are.
+
+It is that process of giving up everything, so that you can accommodate anything.
+
+*Abandon any hope of fruition*
+abandon any fixed idea about what will happen in our practice or in our work life. The meaning of this slogan is that we should not be so focused on results.
+
+letting go of our preconceived notions of how something might work out.
+
+don’t focus on results, focus on the process.
+
+*Train wholeheartedly.*
+
+We need to be single-minded in bringing our full and most authentic self to every moment in our life.
+
+When we have this level of commitment, we will end up living every day from the perspective of our inherent worthiness, our awake state.
+
+When you live a life in touch with your basic goodness, you are unstoppable. There is nothing you cannot accomplish in our out of the workplace. When you work with your own mind and work to benefit others, it almost doesn’t matter what career path you choose; you are already engaging your world wholeheartedly and will be successful in the most meaningful sense.
+
+Through practicing these qualities, you can manifest as the practitioner this world needs. You can be present and engage your life as it is. You can join work and practice in a way that is true to your own noble, open heart. You can lead others with their welfare in mind and utilize these paths as a course of becoming awake. Please do it, because the world needs more leaders like you.
