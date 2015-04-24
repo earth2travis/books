@@ -580,7 +580,7 @@ we should strive to be the change we want to see in the world.
 #### Step 1: Cutting Through Fixed Views
 The problem with these fixed views is that they are the basis for dualistic thinking. If you go into the world with the notion that you opinions are better than everyone else’s and try to force them down people’s throats, you are only propagating aggression.
 
-By continuously coming back to the present, we are learning to free ourselves from fixed points for view. That is an important first step in creating change, at work and in society.
+By continuously coming back to the present, we are learning to free ourselves from fixed points of view. That is an important first step in creating change, at work and in society.
 
 #### Step 2. Raising Your Gaze
 As you are freed from just listening to and expounding upon your own fixed view, you become more available to notice the emotional turmoil of those around you.
