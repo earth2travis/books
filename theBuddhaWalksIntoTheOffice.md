@@ -605,7 +605,7 @@ If you can move beyond thinking only about yourself and open op to an empathetic
 
 The following five slogans seem particularly relevant to keeping and open heart at work.
 
-*When the world is filled with evil, transform all mishaps into the path of body.*
+*When the world is filled with evil, transform all mishaps into the path of bodhi.*
 
 it is easy to keep an open heart when we are surrounded by puppies and loving friends and family. When we are confronted with bona fide evil, particularly in the workplace, it is difficult to maintain a sense of bodhi. 
 
