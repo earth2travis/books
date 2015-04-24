@@ -56,7 +56,7 @@ That is the purpose of meditation practice: to become more present and aware of 
 
 Meditation practice helps us slow down and be present enough to recognize the small joys about our work as well as its frustrations.
 
-A strong and flexible midd is an obvious asset both in determining what you want to do with your life and for performing well in your chosen livelihood.
+A strong and flexible mind is an obvious asset both in determining what you want to do with your life and for performing well in your chosen livelihood.
 
 After some time, he sat down under a tree and just did a simple meditation on his breath. It grounded him in the reality of the present moment, what is going on right now. Through that experience he achieved what is often referred to as enlightenment. What was he enlightened to? The reality of the way things are. He became able to see how things work in the world, the truths of how we suffer and create confusion for ourselves and others, and how he could stop doing that.
 
@@ -197,13 +197,13 @@ someone who wants to cultivate this point of view needs to use their speech as a
 speak from your heart. Address the topic at hand in a clear and precise manner, without letting your emotions get in the way.
 
 > And when your mind is wild or filled with mockery,
-> Or filled with pride and haughty arrogance,
-> Or when you would expose another’s secret guilt,
-> To bring up old dissensions or to act deceitfully,
-> Or when you want to fish for praise,
-> Or criticize and spoil another’s name,
-> Or use harsh language, sparring for a fight,
-> It’s then that like a log you should remain.
+Or filled with pride and haughty arrogance,
+Or when you would expose another’s secret guilt,
+To bring up old dissensions or to act deceitfully,
+Or when you want to fish for praise,
+Or criticize and spoil another’s name,
+Or use harsh language, sparring for a fight,
+It’s then that like a log you should remain.
 
 #### The Path of Mistakes
 Mistakes along the path are helpful. They are opportunities to reflect on the qualities that we long to cultivate, and to remember that it is only through practice we create perfection.
@@ -260,6 +260,8 @@ Knowing your own intention behind what you do is the difference between schleppi
 “Come and see for yourself.”
 
 Doing so keeps the Buddha’s teachings fresh and relevant; it is a living breathing set of teachings as opposed to strict dogma that we must adhere to.
+
+*Of the two witnessnes, hold the principle one.*
 
 there is other people’s view of you and your actions and your own view of yourself.
 
