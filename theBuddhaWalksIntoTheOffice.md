@@ -601,7 +601,7 @@ So let’s all please step up and help this world progress further toward compas
 ### 12. Five Slogans for Empathy and Compassion
 Every day, you have an impact on others in either a positive of a negative way. It is up to you to decide if you want to overcome whatever sense of apathy you may feel today and rouse yourself to engage in virtuous activity, or if you prefer to sink into lazy self-centeredness.
 
-If you can move beyond thinking only about yourself and open op to an empathetic point of view, then you will be able to come home from work and feel good about the life you are living.
+If you can move beyond thinking only about yourself and open up to an empathetic point of view, then you will be able to come home from work and feel good about the life you are living.
 
 The following five slogans seem particularly relevant to keeping and open heart at work.
 
