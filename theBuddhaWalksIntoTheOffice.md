@@ -785,7 +785,7 @@ That is what is meant by giving up genuineness: since it does not belong to us, 
 **Mantra Exercise for Authenticity**
 *Mantra* is a Sanskrit word that can be translated a “to protect the mind.”
 
-take out a male and silently recite and contemplate the word *patience* 108 times.
+take out a mala and silently recite and contemplate the word *patience* 108 times.
 
 choose the phrase that makes the most sense to you as an antidote to whatever emotional disturbance you’re currently experiencing.
 
