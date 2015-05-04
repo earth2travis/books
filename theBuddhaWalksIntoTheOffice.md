@@ -550,7 +550,7 @@ This is the reward for having engaged in virtue and accumulated a large amount o
 
 It is said this gradual decline is actually the most painful experience of all of the various realms of samsara. 
 
-Since we cannot avoid impermanence, we must realize that things change and we will suffer is form of loss
+Since we cannot avoid impermanence, we must realize that things change and we will suffer this form of loss
 
 The six realms are based in the same three root emotions, aggression, passion, and ignorance, discussed earlier. We become lost in the hell realm when we fall victim to anger and aggression. We wander in the hungry-ghost realm when we are stingy and passionately desirous of things we cannot have. We meander in the animal realm when we are lost in ignorance. The human realm is marked by the desire for pleasure and the desire to avoid pain. The jealous-god realm is based in aggression, specifically the aggression of acting out against beings that we perceive as having more than we do. The god realm is a place of ignorance, where we do not realize the nature of change.
 
