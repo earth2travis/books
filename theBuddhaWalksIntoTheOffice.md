@@ -756,7 +756,7 @@ As you exhibit the steadfast presence, the stable power, and the genuine warmth 
 ### 15. Genuine, or Pointing to the Stars
 Genuine in this sense is not just being clear and direct. It involves pointing out the exact nature of things. You are pointing to reality in an indisputable manner.
 
-Genuine is based in knowing what is in your mind and heart, which it true, and not being afraid of it. We can genuinely be who we are. We can genuinely lead others in a way that everyone appreciates. We can even genuinely make mistakes. All of this is okay when it is rooted in our innate goodness.
+Genuine is based in knowing what is in your mind and heart, which is true, and not being afraid of it. We can genuinely be who we are. We can genuinely lead others in a way that everyone appreciates. We can even genuinely make mistakes. All of this is okay when it is rooted in our innate goodness.
 
 Genuine is pointing out whatever truth exists behind mixed expectations or set opinions.
 
