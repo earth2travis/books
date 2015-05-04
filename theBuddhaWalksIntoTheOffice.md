@@ -796,7 +796,7 @@ To take the time to count recitations of *benevolence, gentleness, presence, or 
 ### 16. Fearlessness, or Being Decisive in an Indecisive World
 The Six Ways of Ruling are divided into two broad categories: just and powerful. The first three principles—benevolent, true, and genuine—are about manifesting in a way that feels just when working with others. The next three qualities fall under the heading of powerful. All six embody the Mahayana aspiration of helping all beings we encounter.
 
-the way to wild power well is to wield it for the good of all.
+the way to wield power well is to wield it for the good of all.
 
 true power comes from working for the welfare of others. That is the type of power we can respect.
 
